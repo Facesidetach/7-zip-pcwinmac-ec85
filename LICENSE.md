@@ -1,4 +1,4 @@
-# 
+# Exclusivo 7-Zip complementos para Mac OS | Turbo 7-Zip complementos para PC Windows. Com limpeza de lixeira e integracao de API — otimizado para máximo desempenho em cada plataforma.
 
 
 
